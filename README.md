@@ -2,4 +2,4 @@
 
 **This app helps you manage your day**
 **This app is not free mfuckers**
-**Sir Arthur is gay**
+**Both Sir Arthur and Sir Ololo are gays**
